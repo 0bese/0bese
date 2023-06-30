@@ -1,7 +1,7 @@
 Hey, I'm KOJO👋🏾
 =====================
 
-Computer Programmer
+Computer Programmer & Pharmacist
 -------------------
 
 I am an international student studying Computer Programming at Seneca College, Toronto. I am Ghanaian🇬🇭 and a Pharmacist👨🏾‍⚕️. Santaclausian🦓
